@@ -34,16 +34,14 @@ Note:
 
 ### Albums | EPs
 
-<hr>
-
-###### <b>LOSE LOOSE DAY</b>
+#### <b>LOSE LOOSE DAY</b>
 * ルードルーズダンス (Rude Lose Dance)
 * グッドラッカー(Good Lucker)
 * ブルーグラス(Blue Gurasu)
 * BLANK POST
 * タイムグラム(Time Gram)
 
-###### <b>DROP</b>
+#### <b>DROP</b>
 * アメヲマツ、(Ame wo Matsu)
 * フライハイト (Freiheit)
 * DROP
