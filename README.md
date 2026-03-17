@@ -51,7 +51,7 @@ Note:
 #### <b>Kawakiwoameku</b>
 * カワキヲアメク (Kawaki woa meku) | Lyrics from [OfficialMV](https://youtu.be/0YF8vecQWYs) + minor edits from [Kelana](https://musicboxtrans.wordpress.com/2021/08/16/kawaki-wo-ameku/)
 * main actor | Lyrics from [OfficialMV](https://youtu.be/jb4ybTQwcdw) + minor edits from [Kelana](https://musicboxtrans.wordpress.com/2021/07/19/main-actor/)
-* ライラック (Lilac)
+* ライラック (Lilac) | Lyrics from [Kelana](https://musicboxtrans.wordpress.com/2021/08/03/lilac/)
 * ホロネス (Hollowness)
 * Prologue
 
